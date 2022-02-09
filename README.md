@@ -1,1 +1,0 @@
-# kuras_territory
